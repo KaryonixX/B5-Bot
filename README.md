@@ -1,2 +1,1 @@
-# B5-Bot
-BladeFive Bot source code
+# suck my penis
